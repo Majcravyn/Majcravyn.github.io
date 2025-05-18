@@ -1,0 +1,2 @@
+# Majcravyn.github.io
+Rare
